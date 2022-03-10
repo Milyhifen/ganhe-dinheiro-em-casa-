@@ -1,1 +1,0 @@
-# ganhe-dinheiro-em-casa-
